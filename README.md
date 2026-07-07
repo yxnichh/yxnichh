@@ -5,7 +5,7 @@ ComEN SPU💻
 -----------
 
 * 🌍  I'm based in Bangkok ,Thailand
-* ✉️  You can contact me at [yanichsa.plo@spumail.net](mailto:yanichsa.plo@spumail.net)
+* ✉️  You can contact me at [yanichsaploychoo@gmail.com](mailto:yanichsaploychoo@gmail.com)
 * ⚡  Study at Sripatum University
 
 ### Skills
